@@ -1,3 +1,3 @@
-# pepperwithsalt.github.io
+# oatmealmanic.github.io
 
 testing!
